@@ -1,4 +1,4 @@
-## Bing Wallpaper 
+## Bing Wallpaper
 ![](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg&w=1000)Today: [Brooklyn Bridge with the 'Tribute in Light' installation for 9/11, New York (© ANDREY DENISYUK/Getty Images)](https://cn.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
